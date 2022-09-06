@@ -6,9 +6,9 @@
 
 #### Contact Information
 
-**Phone** : +380660419920
-**Email** : maximgovgiy@gmail.com
-**Telegram** : @Maximilian_211
+* **Phone** : +380660419920
+* **Email** : maximgovgiy@gmail.com
+* **Telegram** : @Maximilian_211
 
 ***
 
